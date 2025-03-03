@@ -1,5 +1,5 @@
-# Chapter 3
+<<<<<<< HEAD
 
-In that moment, an overwhelming urge to continue his workout surged within Marcus. The weights felt heavier, more demanding. As he pushed through the pain, Charles glanced at the mirror again. The man was now closer, his eyes boring into Charles. The workout turned into a battle against unseen forces. He grunted and struggled, trying to lift the barbell above his chest but felt as if something was holding him down.
+# Actionable times
 
-Suddenly, the lights went out, and the whispers grew louder. “Leave! ” they cried. Panic coursed through Charles's veins. He dropped the weights and sprinted towards the exit, but the doors slammed shut. The air thickened, and he realized the ghostly man was not trying to harm him; he was trapped, too.
+In that moment, an overwhelming urge to continue his workout surged within Charles. The weights felt heavier, more demanding. As he pushed through the pain, Charles glanced at the mirror again. The man was now closer, his eyes boring into Charles. The workout turned into a battle against unseen forces. He grunted and struggled, trying to lift the barbell above his chest but felt as if something was holding him down.
