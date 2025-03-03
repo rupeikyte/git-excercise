@@ -1,4 +1,4 @@
 # Chapter 2
-As he lifted weights, he noticed a mirror reflecting something odd behind him. Shaking his head, he blamed fatigue. However, a short while later, he heard faint whispers coming from a dark corner. Curiosity got the better of him, and he walked towards the sound. The more he approached, the colder the air became. 
+In that moment, an overwhelming urge to continue his workout surged within Marcus. The weights felt heavier, more demanding. As he pushed through the pain, Marcus glanced at the mirror again. The man was now closer, his eyes boring into Marcus. The workout turned into a battle against unseen forces. He grunted and struggled, trying to lift the barbell above his chest but felt as if something was holding him down. 
 
-In the corner, he saw a figure. It was a man, pale and gaunt, his eyes sunken. The man stared at Marcus with an intense gaze. Marcus felt a surge of fear but forced himself to ask, “Are you okay? ” The man didn’t respond but pointed to the weights as if trying to communicate something important. 
+Suddenly, the lights went out, and the whispers grew louder. “Leave! ” they cried. Panic coursed through Marcus's veins. He dropped the weights and sprinted towards the exit, but the doors slammed shut. The air thickened, and he realized the ghostly man was not trying to harm him; he was trapped, too. 
