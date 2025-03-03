@@ -1,8 +1,8 @@
 # git-excercise
 
-# Marcus's Exercise Journey
+# Charles's Exercise Journey
 
-- [Chapter 1](chapter1.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 4](chapter4.md)
+- [The lore](chapter1.md)
+- [A visitor for Marcus](chapter3.md)
+- [Actionable times](chapter2.md)
+- [The end](chapter4.md)
