@@ -2,7 +2,7 @@
 
 # Marcus's Exercise Journey
 
-- [Chapter 1](chapter1.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 4](chapter4.md)
+- [The lore](chapter1.md)
+- [A visitor for Marcus](chapter2.md)
+- [Actionable times](chapter3.md)
+- [The end](chapter4.md)
